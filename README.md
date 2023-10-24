@@ -1,2 +1,2 @@
-# benefits-of-silver
+# Benefits of silver
 jewellery 
